@@ -1,1 +1,0 @@
-# Natallia_Baranava_Talend
